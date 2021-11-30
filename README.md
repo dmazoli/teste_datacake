@@ -1,0 +1,1 @@
+Repositório do teste Lógico: Vaga Dev. JR
